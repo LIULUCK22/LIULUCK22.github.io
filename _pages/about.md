@@ -21,7 +21,7 @@ Master in Mathematics
 Graduated: August 2023  
 GPA: 4.0/4.0
 
-**University of South Carolina, Columbia**  
+**University of Illinois, Urbana-Champaign**  
 Bachelor of Science in Electrical Engineering, highest distinction  
 Bachelor of Science in Mathematics, highest distinction  
 Graduated: May 2021  
