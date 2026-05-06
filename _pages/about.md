@@ -38,4 +38,4 @@ Phone: [(530) 761-3243](tel:+15307613243)
 
 ## CV
 
-You can download my CV here: [Download CV](/files/Junsheng_Liu_CV.pdf)
+You can download my CV here: [Download CV](/files/Junsheng Liu Resume_2026.pdf)
